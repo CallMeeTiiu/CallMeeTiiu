@@ -1,1 +1,1 @@
-It says that this would show up in my profile! 🖐️
+It says that this would show up on my profile! 🖐️
